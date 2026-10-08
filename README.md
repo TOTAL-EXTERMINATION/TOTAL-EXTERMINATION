@@ -1,7 +1,7 @@
 <p align="center"><img width="400" height="400" alt="Untitled33_20260926192035" src="https://github.com/user-attachments/assets/b9d3a12a-b982-4afa-b720-b8d999a7550e" /></p>
 
 
-<p align="center">" ᴋɪᴅᴅᴏ, ʀᴇᴍᴇᴍʙᴇʀ ᴡʜᴀᴛ ᴍᴀᴍᴀ ᴛᴏʟᴅ ʏᴏᴜ? ʏᴏᴜ ᴇᴠᴇʀ ꜰɪɴᴅ ᴀɴʏᴛʜɪɴɢ ʏᴏᴜ ᴅᴏɴ'ᴛ ʟɪᴋᴇ, ʏᴏᴜ ᴄᴀɴ ᴛᴀʟᴋ ᴛᴏ ᴍᴇ ᴀʙᴏᴜᴛ ɪᴛ! "</p>
+<p align="center">" ᴀ ꜱᴀᴄʀɪꜰɪᴄᴇ ᴀɪɴ'ᴛ ᴀ ᴛʜɪɴɢ ꜰᴏʀ ᴛʜᴇ ꜰᴀᴍɪʟʏ ! "</p>
 
 
 <p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
@@ -28,13 +28,7 @@
 <p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
 
 
-<p align="center"><img width="486" height="424" alt="Screenshot 2026-10-08 at 11 09 04 PM" src="https://github.com/user-attachments/assets/a513abf8-6c73-4cd0-8fb2-3fb660b16d7a" /></p>
-
-
-
 <p align="center">" ʜᴀʜ. ᴡʜᴀᴛ'ꜱ ᴀ ᴄᴏᴜᴘʟᴇ ᴏꜰ ᴘᴏɪɴᴛᴇᴅ ꜰɪɴɢᴇʀꜱ ᴡʜᴇɴ ᴛʜɪꜱ ꜱᴡᴏʀᴅ ᴏꜰ ʟᴇɢᴇɴᴅꜱ... ɪꜱ ʀᴇꜱᴛɪɴɢ ᴀʟʟ ꜱɴᴜɢ ᴀɴᴅ ꜱᴡᴇᴇᴛ ɪɴ ᴍʏ ʜᴀɴᴅꜱ? "</p>
-
-
 
 
 <p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
@@ -43,7 +37,7 @@
 <p align="center">╰ <img width="20" height="20" alt="ctgf8v" src="https://github.com/user-attachments/assets/2e253c5f-81de-4b82-89a1-f615de53fbaf" /> DNI(s) ﹕basic DNI, politics are on thin ice however</p>
 
 
-<p align="center">︵ PONYTOWN ; feel free to c+h | im usually afk + pff tab | barely int, but know that every msg you sent i will see! </p>
+<p align="center">︵ PONYTOWN ; c+h is a 50/50 im sorry you gotta gamble | im usually afk + pff tab | barely int, but know that every msg you sent i will see! </p>
 
 
 <p align="center">╰ limbus ⸝ ﹕G867621489</p>```
