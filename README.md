@@ -1,13 +1,12 @@
 <p align="center"><img width="400" height="400" alt="Untitled33_20260926192035" src="https://github.com/user-attachments/assets/b9d3a12a-b982-4afa-b720-b8d999a7550e" /></p>
 
-
 <p align="center">" ᴀ ꜱᴀᴄʀɪꜰɪᴄᴇ ᴀɪɴ'ᴛ ᴀ ᴛʜɪɴɢ ꜰᴏʀ ᴛʜᴇ ꜰᴀᴍɪʟʏ ! "</p>
 
 
 <p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
 
 
-<p align="center">:chains: ˖° ⸝⸝ intro ▼</p>
+<p align="center"><img width="20" height="20" alt="50e1276b" src="https://github.com/user-attachments/assets/ee67adcb-4e8b-47c2-9a1f-ba2a4cd63254" /> ˖° ⸝⸝ intro ▼</p>
 
 
 <p align="center">╰ <img width="16" height="16" alt="gglwp2" src="https://github.com/user-attachments/assets/cd6e0638-66d4-448a-ae9d-e189027a3737" /> name(s) ﹕EX0RCUTOR/ K3i</p>
@@ -29,9 +28,6 @@
 
 
 <p align="center">" ʜᴀʜ. ᴡʜᴀᴛ'ꜱ ᴀ ᴄᴏᴜᴘʟᴇ ᴏꜰ ᴘᴏɪɴᴛᴇᴅ ꜰɪɴɢᴇʀꜱ ᴡʜᴇɴ ᴛʜɪꜱ ꜱᴡᴏʀᴅ ᴏꜰ ʟᴇɢᴇɴᴅꜱ... ɪꜱ ʀᴇꜱᴛɪɴɢ ᴀʟʟ ꜱɴᴜɢ ᴀɴᴅ ꜱᴡᴇᴇᴛ ɪɴ ᴍʏ ʜᴀɴᴅꜱ? "</p>
-
-
-<p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
 
 
 <p align="center">╰ <img width="20" height="20" alt="ctgf8v" src="https://github.com/user-attachments/assets/2e253c5f-81de-4b82-89a1-f615de53fbaf" /> DNI(s) ﹕basic DNI, politics are on thin ice however</p>
