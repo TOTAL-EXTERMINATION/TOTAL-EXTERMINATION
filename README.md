@@ -15,7 +15,7 @@
 <p align="center">╰ <img width="16" height="16" alt="gglwp2" src="https://github.com/user-attachments/assets/cd6e0638-66d4-448a-ae9d-e189027a3737" /> name(s) ﹕EX0RCUTOR/ K3i</p>
 
 
-<p align="center">✦ age(18) ₊˚ .<img width="20" height="20" alt="27117626" src="https://github.com/user-attachments/assets/2a949ba5-0dc9-4718-80b5-8f99cb39ab33" /> ༄</p>
+<p align="center">✦ age(17) ₊˚ .<img width="20" height="20" alt="27117626" src="https://github.com/user-attachments/assets/2a949ba5-0dc9-4718-80b5-8f99cb39ab33" /> ༄</p>
 
 
 <p align="center">✦ 𝐩𝐫𝐨𝐧𝐨𝐮𝐧s •₊ he/ him ❥︎ ❏ ❜</p>
