@@ -42,7 +42,7 @@
 <p align="center"><img width="2359" height="1137" alt="IMG_6474" src="https://github.com/user-attachments/assets/75edff9d-5dd2-4490-ae87-988ccda7b2bd" /></p>
 
 
-<p align="center">╰ <img width="20" height="20" alt="IMG_4274" src="https://github.com/user-attachments/assets/496c9865-5236-471f-814b-f9e83b334113" /> limbus ⸝ ﹕G867621489</p>```
+<p align="center">╰ <img width="20" height="20" alt="IMG_4274" src="https://github.com/user-attachments/assets/496c9865-5236-471f-814b-f9e83b334113" /> limbus ⸝ ﹕G867621489</p>
 
 <p align="center">⊹₊˚‧︵‿₊⊱·  ༒︎  ·⊰₊‿︵‧˚₊⊹</p>
 
