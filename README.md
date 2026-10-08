@@ -1,3 +1,6 @@
+<p align="center">⊹₊˚‧︵‿₊⊱·  ༒︎  ·⊰₊‿︵‧˚₊⊹</p>
+
+
 <p align="center"><img width="400" height="400" alt="Untitled33_20260926192035" src="https://github.com/user-attachments/assets/b9d3a12a-b982-4afa-b720-b8d999a7550e" /></p>
 
 <p align="center">" ɪ'ʟʟ ᴍᴀᴋᴇ ʏᴏᴜ ᴀ ᴘᴀʀᴛ ᴏꜰ ᴍᴇ, ᴠᴇɴ ᴛʜᴏᴜɢʜ ʏᴏᴜ'ʀᴇ ᴀɴᴏᴛʜᴇʀ ᴘɪᴇᴄᴇ. "</p>
@@ -24,7 +27,7 @@
 <p align="center">. : *others //  ・˙˚ CN/ ENG oka! ⸝ </p>
 
 
-<p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
+<p align="center">⊹₊˚‧︵‿₊⊱·  ༒︎  ·⊰₊‿︵‧˚₊⊹</p>
 
 
 <p align="center">" ɪᴄʜᴏʀ ʙʟᴇᴇᴅɪɴɢ, ᴄᴜᴛ ᴍᴇ ᴏᴘᴇɴ ᴊᴜꜱᴛ ᴛᴏ ꜱʜᴏᴠᴇ ᴍʏ ʙᴇɪɴɢ ɪɴᴛᴏ ᴛʜɪꜱ ʟᴏɴᴇ ᴄᴅ. "</p>
@@ -40,3 +43,7 @@
 
 
 <p align="center">╰ <img width="20" height="20" alt="IMG_4274" src="https://github.com/user-attachments/assets/496c9865-5236-471f-814b-f9e83b334113" /> limbus ⸝ ﹕G867621489</p>```
+
+<p align="center">⊹₊˚‧︵‿₊⊱·  ༒︎  ·⊰₊‿︵‧˚₊⊹</p>
+
+<p align="center">ALL ARTWORKS ON THIS PAGE GOES TO @OffFenwick ON TWT GO CHECK THEM OUT THEYRE PEAK MEDIAS.</p>
