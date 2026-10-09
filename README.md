@@ -1,7 +1,7 @@
 <p align="center">⊹₊˚‧︵‿. ₊⊱·  ༒︎  ·⊰₊. ‿︵‧˚₊⊹</p>
 
 
-<p align="center"><img width="350" height="350" alt="Untitled33_20260926192035" src="https://github.com/user-attachments/assets/b9d3a12a-b982-4afa-b720-b8d999a7550e" /></p>
+<p align="center"><img width="300" height="300" alt="Untitled33_20260926192035" src="https://github.com/user-attachments/assets/b9d3a12a-b982-4afa-b720-b8d999a7550e" /></p>
 
 <p align="center">" ɪ'ʟʟ ᴍᴀᴋᴇ ʏᴏᴜ ᴀ ᴘᴀʀᴛ ᴏꜰ ᴍᴇ, ᴇᴠᴇɴ ᴛʜᴏᴜɢʜ ʏᴏᴜ'ʀᴇ ᴀɴᴏᴛʜᴇʀ ᴘɪᴇᴄᴇ. "</p>
 
