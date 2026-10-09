@@ -1,7 +1,7 @@
 <p align="center">⊹₊˚‧︵‿. ₊⊱·  ༒︎  ·⊰₊. ‿︵‧˚₊⊹</p>
 
 
-<p align="center"><img width="300" height="300" alt="Untitled33_20260926192035" src="https://github.com/user-attachments/assets/b9d3a12a-b982-4afa-b720-b8d999a7550e" /></p>
+<p align="center"><img width="400" height="400" alt="Untitled33_20260926192035" src="https://github.com/user-attachments/assets/b9d3a12a-b982-4afa-b720-b8d999a7550e" /></p>
 
 <p align="center">" ɪ'ʟʟ ᴍᴀᴋᴇ ʏᴏᴜ ᴀ ᴘᴀʀᴛ ᴏꜰ ᴍᴇ, ᴇᴠᴇɴ ᴛʜᴏᴜɢʜ ʏᴏᴜ'ʀᴇ ᴀɴᴏᴛʜᴇʀ ᴘɪᴇᴄᴇ. "</p>
 
@@ -39,7 +39,7 @@
 <p align="center">︵ PONYTOWN ; c+h is a 50/50 im sorry you gotta gamble | im usually afk + pff tab | barely int, but know that every msg you sent i will see! </p>
 
 
-<p align="center"><img width="2359" height="1137" alt="IMG_6474" src="https://github.com/user-attachments/assets/75edff9d-5dd2-4490-ae87-988ccda7b2bd" /></p>
+<p align="center"><img width="2289" height="1067" alt="IMG_6474" src="https://github.com/user-attachments/assets/75edff9d-5dd2-4490-ae87-988ccda7b2bd" /></p>
 
 
 <p align="center">╰ <img width="20" height="20" alt="IMG_4274" src="https://github.com/user-attachments/assets/496c9865-5236-471f-814b-f9e83b334113" /> limbus ⸝ ﹕G867621489</p>
