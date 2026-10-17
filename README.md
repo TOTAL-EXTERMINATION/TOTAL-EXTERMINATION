@@ -44,6 +44,8 @@
 
 <p align="center">╰ <img width="20" height="20" alt="IMG_4274" src="https://github.com/user-attachments/assets/496c9865-5236-471f-814b-f9e83b334113" /> limbus ⸝ ﹕G867621489 [ ON HIATUS ]</p>
 
+![](https://komarev.com/ghpvc/?username=TOTAL-EXTERMINATION&color=red&style=flat&label=ʜᴜɴᴛᴇʀꜱ)
+
 <p align="center">⊹₊˚‧︵‿. ₊⊱·  ༒︎  ·⊰₊. ‿︵‧˚₊⊹</p>
 
 <p align="center">ALL ARTWORKS ON THIS PAGE GOES TO @OffFenwick ON TWT GO CHECK THEM OUT THEYRE PEAK MEDIAS.</p>
