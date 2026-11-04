@@ -12,7 +12,7 @@
 <p align="center"><img width="20" height="20" alt="50e1276b" src="https://github.com/user-attachments/assets/ee67adcb-4e8b-47c2-9a1f-ba2a4cd63254" /> ˖° ⸝⸝ intro ▼</p>
 
 
-<p align="center">╰ <img width="16" height="16" alt="gglwp2" src="https://github.com/user-attachments/assets/cd6e0638-66d4-448a-ae9d-e189027a3737" /> name(s) ﹕EX0RCUTOR/ K3i - I don't appreciate nicknames, sorry [  oomf only  ]</p>
+<p align="center">╰ <img width="16" height="16" alt="gglwp2" src="https://github.com/user-attachments/assets/cd6e0638-66d4-448a-ae9d-e189027a3737" /> 𝖓𝖆𝖒𝖊(𝖘) ﹕EX0RCUTOR/ K3i - I don't appreciate nicknames, sorry [  oomf only  ]</p>
 
 
 <p align="center">✦ age(17) ₊˚ .<img width="20" height="20" alt="27117626" src="https://github.com/user-attachments/assets/2a949ba5-0dc9-4718-80b5-8f99cb39ab33" /> ༄</p>
@@ -33,7 +33,7 @@
 <p align="center">" ᴇɴᴛʀᴀɴᴄᴇ ᴛɪᴄᴋᴇᴛꜱ ᴀʀᴇ ꜰʀᴇᴇ, ᴇxɪᴛꜱ ᴀʀᴇ ɴᴏᴛ . "</p>
 
 
-<p align="center">╰ <img width="20" height="20" alt="f3h8on" src="https://github.com/user-attachments/assets/0cee93f9-7414-431b-a1cd-52f62c69da84" /> DNI(s) ﹕basic DNI, politics are on thin ice however</p>
+<p align="center">╰ <img width="20" height="20" alt="f3h8on" src="https://github.com/user-attachments/assets/0cee93f9-7414-431b-a1cd-52f62c69da84" /> ＤＮＩ( ｓ ) ﹕basic DNI, politics are on thin ice however</p>
 
 
 <p align="center">︵ PONYTOWN ; c+h according to skins, if it's listed you may | im usually afk + pff tab | barely int, but know that every msg you sent i will see! </p>
