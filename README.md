@@ -36,7 +36,7 @@
 <p align="center">╰ <img width="20" height="20" alt="f3h8on" src="https://github.com/user-attachments/assets/0cee93f9-7414-431b-a1cd-52f62c69da84" /> DNI(s) ﹕basic DNI, politics are on thin ice however</p>
 
 
-<p align="center">︵ PONYTOWN ; c+h is a 50/50 im sorry you gotta gamble | im usually afk + pff tab | barely int, but know that every msg you sent i will see! </p>
+<p align="center">︵ PONYTOWN ; c+h according to skins, if it's listed you may | im usually afk + pff tab | barely int, but know that every msg you sent i will see! </p>
 
 
 <p align="center"><img width="2289" height="1067" alt="IMG_6474" src="https://github.com/user-attachments/assets/75edff9d-5dd2-4490-ae87-988ccda7b2bd" /></p>
