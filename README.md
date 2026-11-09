@@ -12,7 +12,7 @@
 <p align="center"><img width="20" height="20" alt="50e1276b" src="https://github.com/user-attachments/assets/ee67adcb-4e8b-47c2-9a1f-ba2a4cd63254" /> ˖° ⸝⸝ intro ▼</p>
 
 
-<p align="center">╰ <img width="16" height="16" alt="gglwp2" src="https://github.com/user-attachments/assets/cd6e0638-66d4-448a-ae9d-e189027a3737" /> 𝖓𝖆𝖒𝖊(𝖘) ﹕𝙴𝚇0𝚁𝙲𝚄𝚃𝙾𝚁 (𝚘𝚛 𝚎𝚡𝚘𝚛 !!) / 007𝚗7 - 𝙸 𝚍𝚘𝚗'𝚝 𝚊𝚙𝚙𝚛𝚎𝚌𝚒𝚊𝚝𝚎 𝚗𝚒𝚌𝚔𝚗𝚊𝚖𝚎𝚜, 𝚜𝚘𝚛𝚛𝚢 [  𝚘𝚘𝚖𝚏 𝚘𝚗𝚕𝚢  ] - 𝙳𝙾𝚄𝙱𝙻𝙴𝚂 𝙸𝚆𝙲.</p>
+<p align="center">╰ <img width="16" height="16" alt="gglwp2" src="https://github.com/user-attachments/assets/cd6e0638-66d4-448a-ae9d-e189027a3737" /> 𝖓𝖆𝖒𝖊(𝖘) ﹕𝙴𝚇0𝚁𝙲𝚄𝚃𝙾𝚁 (𝚘𝚛 𝚎𝚡𝚘𝚛 !!) / 007𝚗7 - 𝙸 𝚍𝚘𝚗'𝚝 𝚊𝚙𝚙𝚛𝚎𝚌𝚒𝚊𝚝𝚎 𝚗𝚒𝚌𝚔𝚗𝚊𝚖𝚎𝚜, 𝚜𝚘𝚛𝚛𝚢 [  𝚘𝚘𝚖𝚏 𝚘𝚗𝚕𝚢  ] - 𝙳𝙾𝚄𝙱𝙻𝙴𝚂 𝙸𝚆𝙲 ; 𝚂𝙷𝙸𝙿𝚂 𝙳𝙽𝙸</p>
 
 
 <p align="center">✦ age(17) ₊˚ .<img width="20" height="20" alt="27117626" src="https://github.com/user-attachments/assets/2a949ba5-0dc9-4718-80b5-8f99cb39ab33" /> ༄</p>
