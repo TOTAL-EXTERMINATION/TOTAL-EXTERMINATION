@@ -36,7 +36,7 @@
 <p align="center">╰ <img width="20" height="20" alt="f3h8on" src="https://github.com/user-attachments/assets/0cee93f9-7414-431b-a1cd-52f62c69da84" /> ＤＮＩ( ｓ ) ﹕𝚋𝚊𝚜𝚒𝚌 𝙳𝙽𝙸, 𝚙𝚘𝚕𝚒𝚝𝚒𝚌𝚜 𝚊𝚛𝚎 𝚘𝚗 𝚝𝚑𝚒𝚗 𝚒𝚌𝚎 𝚑𝚘𝚠𝚎𝚟𝚎𝚛</p>
 
 
-<p align="center">︵ PONYTOWN ; 𝚌+𝚑 𝚊𝚌𝚌𝚘𝚛𝚍𝚒𝚗𝚐 𝚝𝚘 𝚜𝚔𝚒𝚗𝚜, 𝚒𝚏 𝚒𝚝'𝚜 𝚕𝚒𝚜𝚝𝚎𝚍 𝚢𝚘𝚞 𝚖𝚊𝚢 . 𝚘𝚘𝚖𝚏𝚜 𝚌𝚊𝚗 𝚒𝚐𝚗𝚘𝚛𝚎 ! | 𝚒𝚖 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 𝚊𝚏𝚔 + 𝚙𝚏𝚏 𝚝𝚊𝚋 | 𝚋𝚊𝚛𝚎𝚕𝚢 𝚒𝚗𝚝, 𝚋𝚞𝚝 𝚔𝚗𝚘𝚠 𝚝𝚑𝚊𝚝 𝚎𝚟𝚎𝚛𝚢 𝚖𝚜𝚐 𝚢𝚘𝚞 𝚜𝚎𝚗𝚝 𝚒 𝚠𝚒𝚕𝚕 𝚜𝚎𝚎! </p>
+<p align="center">︵ PONYTOWN ; 𝚌+𝚑 𝚊𝚌𝚌𝚘𝚛𝚍𝚒𝚗𝚐 𝚝𝚘 𝚜𝚔𝚒𝚗𝚜, 𝚒𝚏 𝚒𝚝'𝚜 𝚕𝚒𝚜𝚝𝚎𝚍 𝚢𝚘𝚞 𝚖𝚊𝚢 . 𝚘𝚘𝚖𝚏𝚜 𝚌𝚊𝚗 𝚒𝚐𝚗𝚘𝚛𝚎 ! - 𝚒𝚖 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 𝚊𝚏𝚔 + 𝚙𝚏𝚏 𝚝𝚊𝚋 - 𝚋𝚊𝚛𝚎𝚕𝚢 𝚒𝚗𝚝, 𝚋𝚞𝚝 𝚔𝚗𝚘𝚠 𝚝𝚑𝚊𝚝 𝚎𝚟𝚎𝚛𝚢 𝚖𝚜𝚐 𝚢𝚘𝚞 𝚜𝚎𝚗𝚝 𝚒 𝚠𝚒𝚕𝚕 𝚜𝚎𝚎! </p>
 
 
 <p align="center"><img width="2289" height="1067" alt="IMG_6474" src="https://github.com/user-attachments/assets/75edff9d-5dd2-4490-ae87-988ccda7b2bd" /></p>
