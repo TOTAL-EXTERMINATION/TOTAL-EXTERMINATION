@@ -1,4 +1,4 @@
-<p align="center"><img width="1200" height="328" alt="image-Photoroom" src="https://github.com/user-attachments/assets/d325ea29-7658-4f3b-b122-9827985940c8" /></p>
+<p align="center"><img width="1000" height="128" alt="image-Photoroom" src="https://github.com/user-attachments/assets/d325ea29-7658-4f3b-b122-9827985940c8" /></p>
 
 
 <p align="center">⊹₊˚‧︵‿. ₊⊱·  ༒︎  ·⊰₊. ‿︵‧˚₊⊹</p>
@@ -52,4 +52,4 @@
 <p align="center">ALL ARTWORKS ON THIS PAGE GOES TO @OffFenwick ON TWT GO CHECK THEM OUT THEYRE PEAK MEDIAS.</p>
 
 
-<p align="center"><img width="1200" height="328" alt="image-Photoroom" src="https://github.com/user-attachments/assets/d325ea29-7658-4f3b-b122-9827985940c8" /></p>
+<p align="center"><img width="1000" height="128" alt="image-Photoroom" src="https://github.com/user-attachments/assets/d325ea29-7658-4f3b-b122-9827985940c8" /></p>
