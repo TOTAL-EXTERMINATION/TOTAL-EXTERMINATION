@@ -46,6 +46,6 @@
 
 <p align="center">⊹₊˚‧︵‿. ₊⊱·  ༒︎  ·⊰₊. ‿︵‧˚₊⊹</p>
 
-[1 . + as MATTHIAS](https://github.com/THE-TEMPIST)
+<p align="center">[1 . + as MATTHIAS](https://github.com/THE-TEMPIST)</p>
 
 <p align="center">𝙰𝙻𝙻 𝙰𝚁𝚃𝚆𝙾𝚁𝙺𝚂 𝙾𝙽 𝚃𝙷𝙸𝚂 𝙿𝙰𝙶𝙴 𝙶𝙾𝙴𝚂 𝚃𝙾 @OffFenwick 𝙾𝙽 𝚃𝚆𝚃 𝙶𝙾 𝙲𝙷𝙴𝙲𝙺 𝚃𝙷𝙴𝙼 𝙾𝚄𝚃 𝚃𝙷𝙴𝚈𝚁𝙴 𝙿𝙴𝙰𝙺 𝙼𝙴𝙳𝙸𝙰𝚂.</p>
