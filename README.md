@@ -30,7 +30,7 @@
 <p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
 
 
-<p align="center">" ᴇɴᴛʀᴀɴᴄᴇ ᴛɪᴄᴋᴇᴛꜱ ᴀʀᴇ ꜰʀᴇᴇ, ᴇxɪᴛꜱ ᴀʀᴇ ɴᴏᴛ . "</p>
+<p align="center">" ʏᴏᴜ’ʟʟ ʙᴇ ꜱᴏʀʀʏ ... ᴏɴ ʏᴏᴜʀ ᴋɴᴇᴇꜱ ; ᴇɴᴛʜʀᴀʟʟᴇᴅ ᴛᴏ ᴍᴇ , ʟᴀʏ ᴅᴏᴡɴ ʏᴏᴜʀ ʜᴇᴀᴅ ᴛᴏ ʙʟᴇᴇᴅ . "</p>
 
 
 <p align="center">╰ <img width="20" height="20" alt="f3h8on" src="https://github.com/user-attachments/assets/0cee93f9-7414-431b-a1cd-52f62c69da84" /> ＤＮＩ( ｓ ) ﹕𝚋𝚊𝚜𝚒𝚌 𝙳𝙽𝙸, 𝚙𝚘𝚕𝚒𝚝𝚒𝚌𝚜 𝚊𝚛𝚎 𝚘𝚗 𝚝𝚑𝚒𝚗 𝚒𝚌𝚎 𝚑𝚘𝚠𝚎𝚟𝚎𝚛</p>
