@@ -21,7 +21,7 @@
 <p align="center">✦ 𝐩𝐫𝐨𝐧𝐨𝐮𝐧s •₊ he/ him ❥︎ ❏ ❜</p>
 
 
-<p align="center">╰ <img width="20" height="20" alt="c6772406" src="https://github.com/user-attachments/assets/71e78a93-b044-4013-9524-dbd239e5b003" /> hyperfix ⸝ fandoms ﹕𝙻𝚒𝚖𝚋𝚞𝚜 𝙲𝚘𝚖𝚙𝚊𝚗𝚢, 𝙽𝚞𝚕𝚕𝚜𝚌𝚊𝚙𝚎, 𝚁𝚘𝚋𝚕𝚘𝚡 𝚖𝚎𝚍𝚒𝚊𝚜 𝚒𝚗 𝚐𝚎𝚗𝚎𝚛𝚊𝚕, 𝙵𝙿𝙴, 𝙵𝚕𝚊𝚟𝚘𝚛 𝚁𝚊𝚟𝚎</p>
+<p align="center">╰ <img width="20" height="20" alt="c6772406" src="https://github.com/user-attachments/assets/71e78a93-b044-4013-9524-dbd239e5b003" /> hyperfix ⸝ fandoms ﹕𝙻𝚒𝚖𝚋𝚞𝚜 𝙲𝚘𝚖𝚙𝚊𝚗𝚢, 𝙽𝚞𝚕𝚕𝚜𝚌𝚊𝚙𝚎, 𝚁𝚘𝚋𝚕𝚘𝚡 𝚖𝚎𝚍𝚒𝚊𝚜 𝚒𝚗 𝚐𝚎𝚗𝚎𝚛𝚊𝚕, 𝙵𝙿𝙴</p>
 
 
 <p align="center">. : *others //  ・˙˚ 𝙲𝙽/ 𝙴𝙽𝙶 𝚘𝚔𝚊! ⸝ </p>
