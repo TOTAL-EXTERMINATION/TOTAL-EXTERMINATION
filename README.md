@@ -3,7 +3,7 @@
 
 <p align="center"><img width="400" height="400" alt="Untitled33_20260926192035" src="https://github.com/user-attachments/assets/b9d3a12a-b982-4afa-b720-b8d999a7550e" /></p>
 
-<p align="center">" ᴏᴜʀ ꜰʀɪᴇɴᴅꜱ ᴀɴᴅ ꜰᴏᴇꜱ, ɪᴅʟʏ ᴍᴀʀᴄʜɪɴɢ ʙʏ ᴏᴜʀ ꜱɪᴅᴇꜱ, ᴡᴀᴛᴄʜ ɪɴ ꜱɪʟᴇɴᴄᴇ . "</p>
+<p align="center">" ꜰᴏʀ ꜰʀᴇᴇᴅᴏᴍᴇ ᴀɴᴅ ʜᴏɴᴏʀ, ᴇɴᴅᴜʀᴇ ᴏᴜʀ ᴍᴀɴꜱʟᴀᴜɢʜᴛᴇʀ . "</p>
 
 
 <p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
