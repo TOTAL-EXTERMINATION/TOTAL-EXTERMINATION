@@ -46,7 +46,7 @@
 
 <p align="center">⊹₊˚‧︵‿. ₊⊱·  ༒︎  ·⊰₊. ‿︵‧˚₊⊹</p>
 
-<p align="center">( <img width="20" height="20" alt="ybkxjl" src="https://github.com/user-attachments/assets/8ea7fa5b-e135-4d77-baef-55fe0c650cde" /> )✦ 𝙽𝙾𝙼𝙸𝙽𝙰𝚃𝙸𝙾𝙽𝚂</p>
+<p align="center">( <img width="20" height="20" alt="ybkxjl" src="https://github.com/user-attachments/assets/8ea7fa5b-e135-4d77-baef-55fe0c650cde" /> ) ✦ 𝙽𝙾𝙼𝙸𝙽𝙰𝚃𝙸𝙾𝙽𝚂</p>
 
 <div align="center">
 
