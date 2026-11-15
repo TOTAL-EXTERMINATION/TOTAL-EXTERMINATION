@@ -46,7 +46,7 @@
 
 <p align="center">⊹₊˚‧︵‿. ₊⊱·  ༒︎  ·⊰₊. ‿︵‧˚₊⊹</p>
 
-✦ 𝙽𝙾𝙼𝙸𝙽𝙰𝚃𝙸𝙾𝙽𝚂
+<p align="center">✦ 𝙽𝙾𝙼𝙸𝙽𝙰𝚃𝙸𝙾𝙽𝚂</p>
 
 <div align="center">
 
