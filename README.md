@@ -46,15 +46,17 @@
 
 <p align="center">⊹₊˚‧︵‿. ₊⊱·  ༒︎  ·⊰₊. ‿︵‧˚₊⊹</p>
 
+✦ 𝙽𝙾𝙼𝙸𝙽𝙰𝚃𝙸𝙾𝙽𝚂
+
 <div align="center">
 
-[1 .](https://github.com/THE-TEMPIST)
+[1 .](https://github.com/THE-TEMPIST)✦
 
 </div>
 
 <div align="center">
 
-[2 .](https://github.com/ponytowns-rewards)
+[2 .](https://github.com/ponytowns-rewards)✦
 
 </div>
 
