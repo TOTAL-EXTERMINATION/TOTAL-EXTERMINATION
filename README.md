@@ -48,19 +48,8 @@
 
 <p align="center">( <img width="20" height="20" alt="ybkxjl" src="https://github.com/user-attachments/assets/8ea7fa5b-e135-4d77-baef-55fe0c650cde" /> ) ✦ 𝙽𝙾𝙼𝙸𝙽𝙰𝚃𝙸𝙾𝙽𝚂</p>
 
-<p align="center">as ᴍᴀᴛᴛʜɪᴀꜱ .</p>
+<p align="center"><img width="536" height="24" alt="Screenshot 2026-11-18 at 7 38 36 PM" src="https://github.com/user-attachments/assets/7aa9ab80-c470-445f-86ea-16399d9b9afb" /></p>
 
-<div align="center">
-
-[1 .](https://github.com/THE-TEMPIST)✦
-
-</div>
-
-<div align="center">
-
-[2 .](https://github.com/ponytowns-rewards)✦
-
-</div>
-
+<p align="center"><img width="420" height="23" alt="Screenshot 2026-11-18 at 7 39 10 PM" src="https://github.com/user-attachments/assets/c5f0dfce-8fb4-40d1-9aa6-168a0b062684" /></p>
 
 <p align="center">𝙰𝙻𝙻 𝙰𝚁𝚃𝚆𝙾𝚁𝙺𝚂 𝙾𝙽 𝚃𝙷𝙸𝚂 𝙿𝙰𝙶𝙴 𝙶𝙾𝙴𝚂 𝚃𝙾 @OffFenwick 𝙾𝙽 𝚃𝚆𝚃 𝙶𝙾 𝙲𝙷𝙴𝙲𝙺 𝚃𝙷𝙴𝙼 𝙾𝚄𝚃 𝚃𝙷𝙴𝚈𝚁𝙴 𝙿𝙴𝙰𝙺 𝙼𝙴𝙳𝙸𝙰𝚂.</p>
