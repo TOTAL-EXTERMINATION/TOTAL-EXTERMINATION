@@ -45,7 +45,7 @@
 <p align="center">╰ <img width="20" height="20" alt="IMG_4274" src="https://github.com/user-attachments/assets/496c9865-5236-471f-814b-f9e83b334113" /> limbus ⸝ ﹕G867621489 [ ON HIATUS ]</p>
 
 <p align="center">
- ✦  <a href="https://github.com/RULE-VIOLATION">STUPID FUCKING BAKA .</a> [ ᴀʟᴛ ]
+ ✦  <a href="https://github.com/RULE-VIOLATION">STUPID FUCKING BAKA .</a> [ ᴛʟᴅʀ ᴀʟᴛ ]
 </p>
 
 <p align="center">⊹₊˚‧︵‿. ₊⊱·  ༒︎  ·⊰₊. ‿︵‧˚₊⊹</p>
