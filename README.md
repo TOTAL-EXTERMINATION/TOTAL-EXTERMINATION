@@ -58,4 +58,6 @@
 
 <p align="center"><img width="329" height="19" alt="Screenshot 2026-11-19 at 9 30 00 AM" src="https://github.com/user-attachments/assets/63381157-a241-4842-ae25-b925be6970dc" /></p>
 
+<img width="350" height="18" alt="Screenshot 2026-11-24 at 7 25 02 PM" src="https://github.com/user-attachments/assets/a62e72da-f380-4e71-8860-996008a6904a" />
+
 <p align="center">𝙰𝙻𝙻 𝙰𝚁𝚃𝚆𝙾𝚁𝙺𝚂 𝙾𝙽 𝚃𝙷𝙸𝚂 𝙿𝙰𝙶𝙴 𝙶𝙾𝙴𝚂 𝚃𝙾 @OffFenwick 𝙾𝙽 𝚃𝚆𝚃 𝙶𝙾 𝙲𝙷𝙴𝙲𝙺 𝚃𝙷𝙴𝙼 𝙾𝚄𝚃 𝚃𝙷𝙴𝚈𝚁𝙴 𝙿𝙴𝙰𝙺 𝙼𝙴𝙳𝙸𝙰𝚂.</p>
